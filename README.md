@@ -1,1 +1,0 @@
-https://irinashm.github.io/nsp-magz
